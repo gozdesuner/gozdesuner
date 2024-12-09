@@ -20,12 +20,11 @@
 ---
 
 ## 📫 How to Reach Me  
-📧 **Email:** gozdesuner@example.com (örnek)  
-
+📧 **Email:** gzdsuner@gmail.com 
 ---
 
 ## 🌐 Connect with Me  
-- LinkedIn: [Gözde Süner](https://linkedin.com/in/gozdesuner)  
+- LinkedIn: [Gözde Süner](https://www.linkedin.com/in/g%C3%B6zde-s%C3%BCner-698446170/)
 
 ---
 
